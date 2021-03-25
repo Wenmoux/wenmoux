@@ -9,6 +9,6 @@
 
   * Email: wenmoux@gmail.com
   
-  * Blog: [在上温某某](https://www.1oner.cn)
+  * Blog: [在上温某某](https://blog.1oner.cn)
   
 
