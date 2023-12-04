@@ -5,7 +5,7 @@
 
 - 📫 How to reach me: 
 
-  * Telegram: [@Wenmoux](https://t.me/Wenmoumou)
+  * Telegram: [@Wenmoux](https://t.me/wenmoux)
 
   * Email: wenmoux@gmail.com
   
